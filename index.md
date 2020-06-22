@@ -2,8 +2,16 @@
 
  [![](https://tinyurl.com/ydcxhx7f)](http://bit.ly/repokachu) [![](https://tinyurl.com/ybaflaxt)](https://vkodi.net/repo/) [![](https://tinyurl.com/ybcutyjq)](http://bit.ly/zipikachu) [![](https://tinyurl.com/yckqgysp)](https://linktr.ee/addonpikachu) [![](https://tinyurl.com/ybja3588)](https://tinyurl.com/grupopikachu) [![](https://tinyurl.com/y83so6xr)](https://t.me/addonpikachu)  
 
-# Aguardem
-<img src="https://media.giphy.com/media/slVWEctHZKvWU/giphy.gif" alt="pikachu">
+# segunda-feira, 22 de junho de 2020
+<table style="width:100%"><tr><th><center><b> Area de documentários recheada de conteúdos ricos em informação para você e sua familía! - 1080p - Dublado </b></center></th></tr>
+<tr><td><div align="center"><img src="https://raw.githubusercontent.com/novidadespikachu/btns/master/Imgs/Docs/Docs%20(1).png" alt="Addon Pikachu"></div></td></tr>
+</table>
+
+
+<table style="width:100%"><tr><th><center><b> Venha desvendar os segredos do mundo na área documentários do Pikachu! - 1080p - Dublado </b></center></th></tr>
+<tr><td><div align="center"><img src="https://raw.githubusercontent.com/novidadespikachu/btns/master/Imgs/Docs/Docs%20(2).png" alt="Addon Pikachu"></div></td></tr>
+</table>
+
 
 <a href="https://bit.ly/pikachufull">
 <img src="https://tinyurl.com/y9zk36eq" alt="pikachu">
